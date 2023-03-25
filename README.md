@@ -1,0 +1,1 @@
+# AllureReport_AdactineHotel
